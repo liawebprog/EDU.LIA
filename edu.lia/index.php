@@ -9,6 +9,4 @@ helloka mizu
 ez vanwekjhhi
 
 ez egy változásfafadsdsdsds
-fafsafa
-fafadsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdhkjhkjhsajhjkjhkjhsakkhshkajhskajhsaskjhahgjghhgjhjhgjhghjgjhgjhgjhgjhgjhgjhgjhgjhgjhgjhgjhgjgjhgjhg
-
+f
